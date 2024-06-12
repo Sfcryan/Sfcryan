@@ -1,6 +1,9 @@
 Bem vindo ao meu perfil 
+
 Ryan
+
 estudo na escola
+
 para conhecer novas coisas 
 
 ## entre em contato comigo
