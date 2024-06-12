@@ -2,9 +2,9 @@ Bem vindo ao meu perfil
 
 Ryan
 
-estudo na escola 
+Santista/ cria da fundão itapevi-sp
 
-estou nessa plataforma para conhecer novas coisas 
+estou nessa plataforma para conhecer coisas novas 
 
 ## entre em contato comigo
 00001115405767sp@al.educacao.sp.gov.br
